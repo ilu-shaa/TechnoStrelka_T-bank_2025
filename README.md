@@ -1,1 +1,0 @@
-# TechnoStrelka_T-bank_2025
